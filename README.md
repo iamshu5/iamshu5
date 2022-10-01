@@ -4,7 +4,7 @@
 - � Saya melihat banyak potensi didalam diri saya, terkadang 
 - 📫 Pelajar Otodidak
 - Instagram: https://www.instagram.com/shubkhiilham.555/
-- Discord: shuiam#7049 
+- Discord: iamshu#9931
 <!---
 iamshu5/iamshu5 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
