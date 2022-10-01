@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Liam
 - 👀 Saya Pelajar Baru Ya Ges
 - 🌱  Saya Belajar Dari Kegagalan untuk mengetahui potensi yang ada dalam diri saya
-- � Saya melihat banyak potensi didalam diri saya, terkadang 
+- � Saya melihat banyak potensi didalam diri saya, sometimes
 - 📫 Pelajar Otodidak
 - Instagram: https://www.instagram.com/shubkhiilham.555/
 - Discord: iamshu#9931
